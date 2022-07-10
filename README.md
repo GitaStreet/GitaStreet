@@ -1,4 +1,4 @@
-### 👋 Hi | Hej | Bonjour | Γεια σου | Aluu | नमस्ते  |  你好 👋   
+### 👋 Hi | Hej | Bonjour | Γεια σου | Aluu | नमस्ते  |  你好 
 
 
 - 🔭 I’m currently working on my GitHub profile
